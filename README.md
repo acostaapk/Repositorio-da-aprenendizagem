@@ -13,3 +13,5 @@ Minha principal característica é a empatia, me colocar no lugar do outro é es
 
 Sempre buscando trocar experiências e conhecimentos, fique a vontade, entre em contato para conversar sempre que desejar!
 ### [Saiba mais](https://www.linkedin.com/in/andr%C3%A9-c-040a0558/) 😏Voce sera redirecionado para o Linkedin😄
+
+Agradeço pela visita!!!
